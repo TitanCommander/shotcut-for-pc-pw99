@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows secure Filter: color-correction & multi-track-editing offers the most advanced Shotcut for PC | Shotcut for Windows filter, with
 
 
 
